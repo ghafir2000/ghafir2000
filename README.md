@@ -10,7 +10,7 @@ I try to always keep up with the latest algorithms and models. If you're interes
 
 [Ahmad Al Ghafir.docx](https://github.com/ghafir2000/ghafir2000/files/15300077/Ahmad.Al.Ghafir.docx)
 
-If the project you need help with has to do with public problems or solutions for people in need, then you've got my full attention!!.
+If the project you need help with has to do with public problems or solutions for people in need, then you've got my full attention!!
 
 ## Contact Me
 If you have anything interesting to say about the amazing topic that is AI or you simply want to chat, reach out to me on the following contacts:
