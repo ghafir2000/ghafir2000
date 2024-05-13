@@ -16,7 +16,8 @@ If the project you need help with has to do with public problems or solutions fo
 If you have anything interesting to say about the amazing topic that is AI or you simply want to chat, reach out to me on the following contacts:
 1. Simply send an email!!  ----> ahmad.al.ghafir2000@gmail.com
 2. I always check my LinkedIn notifications, reach out!! ----> https://www.linkedin.com/in/ahmad-al-ghafir/
-3. Facebook can be cool when it tries really hard, like me (LOL). DM me if you need anything ----> https://www.facebook.com/ahmad.ahmadalghfer.7
+3. Facebook can be cool when it tries really hard, like me (LOL).
+    DM me if you need anything ----> https://www.facebook.com/ahmad.ahmadalghfer.7
 4. You can also simply give me a call ----> +963 995 715 887
 
 ⚡ Fun fact: The journey to knowledge never ends, you can only keep stumbling through to keep up!! And tea is better than coffee 👌😂
