@@ -8,7 +8,7 @@ I enjoy playing basketball, but what I would consider to be my favorite sport is
 I’m looking to collaborate on any AI-related project. I don't ask for much, since it's what I am passionate about.
 I try to always keep up with the latest algorithms and models. If you're interested, you can check out my CV below. 
 
-[Ahmad Al Ghafir.docx](https://github.com/ghafir2000/ghafir2000/files/15300077/Ahmad.Al.Ghafir.docx)
+[Ahmad Al Ghafir.pdf](https://github.com/user-attachments/files/16950001/Ahmad.Al.Ghafir.pdf)
 
 If the project you need help with has to do with public problems or solutions for people in need, then you've got my full attention!!
 
