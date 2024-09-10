@@ -19,6 +19,6 @@ If you have anything interesting to say about the amazing topic that is AI or yo
 3. Facebook can be cool when it tries really hard, like me (LOL).
    
     DM me if you need anything ----> https://www.facebook.com/ahmad.ahmadalghfer.7
-4. You can always just give me a call ----> +963 995 715 887
+4. You can always just give me a call ----> +963 995 715 887 or on +963 984 204 070
 
 ⚡ Fun fact: The journey to knowledge never ends, you can only keep stumbling through to keep up!! And tea is better than coffee 👌😂
